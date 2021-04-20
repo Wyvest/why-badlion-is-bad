@@ -14,7 +14,7 @@
 
 
 ## Content creators
-Content creators that are "sponsored" by Badlion get less than 50% of the money earnt from their cosmetic and even less if the people buying it do not use their code. See [Bedless quits Badlion](https://www.youtube.com/watch?v=HbYUvejjPkA/) (at one point cxlvxn talked about it but the twitter account got suspended).
+Content creators that are "sponsored" by Badlion get less than 70% of the money earnt from their cosmetic and even less if the people buying it do not use their code. See [Bedless quits Badlion](https://www.youtube.com/watch?v=HbYUvejjPkA/) (at one point cxlvxn talked about it but the twitter account got suspended).
 
 ## Pedophilia
 The owners are known to show pedophilic actions. See [MasterGBerry exposed](https://badlion.xyz/) and [ArchyBot exposed](https://www.youtube.com/watch?v=dDlDUmVxkGI/). **AS OF RECENTLY BOTH OWNERS EXPOSED FOR PEDOPHILIA HAVE BEEN REMOVED FROM THE TEAM!**
