@@ -12,8 +12,6 @@
 
 - As said in the second bullet point, if you want to contribute to this, make a PR.
 
-# Summary of why Badlion is bad
-
 ## Pedophilia
 The owners are known to show pedophilic actions.
 
