@@ -28,7 +28,7 @@ Many mods have been from popular forge mods and do not give any attribution and 
 
 
 ## Harbouring more pedophiles
-At least 5 of the content creators that had cosmetics in Badlion were pedophiles.
+At least 2 of the content creators that had cosmetics in Badlion were pedophiles . These are Tenebrous (the old owner of the channel, not the current one) and DeHamad (who is currently hiding as an Arabic BlocksMC YouTuber)
 
 ## Cosmetics do not fit the feel of Minecraft
 Instead of Minecraft's blocky feel, most of Badlion's cosmetics look too modern and smooth to be in Minecraft.
