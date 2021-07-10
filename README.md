@@ -8,7 +8,7 @@
 
 - This is not an excuse to hate on users of Badlion. This is so people are aware and then make a decision on whether or not they should use Badlion or not.
 
-- Bias will almost definetly be here. If you want to make this somewhat less biased, make a PR.
+- Bias will almost definitely be here. If you want to make this somewhat less biased, make a PR.
 
 - As said in the second bullet point, if you want to contribute to this, make a PR.
 
