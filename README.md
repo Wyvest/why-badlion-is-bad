@@ -4,6 +4,9 @@
 
 </div>
 
+**I no longer agree with most of these statements. This page is highly outdated and Badlion has improved much since I have last properly updated this. Again, please do not hate on people that use / dev for Badlion. At the end of the day, all clients are still terrible due to their downsides (poor customization, drama, community, etc) and you will most likely have a better experience in Forge.**
+
+
 ## A disclaimer
 
 - This is not an excuse to hate on users of Badlion. This is so people are aware and then make a decision on whether or not they should use Badlion or not.
