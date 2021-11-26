@@ -4,7 +4,7 @@
 
 </div>
 
-**I no longer agree with most of these statements. This page is highly outdated and Badlion has improved much since I have last properly updated this. Again, please do not hate on people that use / dev for Badlion. At the end of the day, all clients are still terrible due to their downsides (poor customization, drama, community, etc) and you will most likely have a better experience in Forge.**
+**I no longer agree with most of these statements. This page is highly outdated and Badlion has improved much since I have last properly updated this. Again, please do not hate on people that use / dev for Badlion. At the end of the day, all clients are still terrible due to their downsides (poor customization, drama, community, etc) and you will most likely have a better experience in Forge (https://github.com/LizzyMaybeDev/Introduction-to-modding-mc).**
 
 
 ## A disclaimer
